@@ -1,1 +1,0 @@
-# GreenPulse_Team
